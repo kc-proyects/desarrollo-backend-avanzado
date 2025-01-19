@@ -8,4 +8,4 @@ Por lo que no he podido ni comenzar a desarrollar la práctica.
 
 Tengo entendido que si el alumno no presenta nada, no tiene derecho a la reentrega y es por ello que he hecho esta entrega.
 
-Siento las molestias y espero tener la oportunidad de reentregar la práctica. No obstante, de igual manera seguiré todas las clases en los próximos dçias y el progreso seguido en clase para intentar asimilar este módulo que tanto me interesa.
+Siento las molestias y espero tener la oportunidad de reentregar la práctica. No obstante, de igual manera seguiré todas las clases en los próximos dias y el progreso seguido en clase para intentar asimilar este módulo que tanto me interesa.
